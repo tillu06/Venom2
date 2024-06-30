@@ -42,7 +42,7 @@ Go to the group and approve yourself to use ddos by»
 𝚗𝚘𝚘𝚋𝚜 𝚠𝚊𝚝𝚌𝚑 𝚝𝚑𝚒𝚜 𝚟𝚒𝚍𝚎𝚘» https://t.me/venomCHA7/28089
 
 note-  𝗩𝗘𝗡𝗢𝗠 𝗩2 𝗦𝗖𝗥𝗶𝗣𝗧(𝗢𝗡 𝗧𝗘𝗦𝗧𝗶𝗡𝗚)
-This script will run but 24x7 and more features are not added yet i will add all features soon keep support.
+This script will not run but 24x7 and more features are not added yet i will add all features soon keep support.
 Bgmi anticheat got fucked in this script account ban chance decreased by 70%
 
                     bgmi»🤡
